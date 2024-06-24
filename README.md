@@ -12,6 +12,6 @@ Here are some ideas to get you started:
 - 💬 Ask me about: about gihtub
 - 📫 How to reach me: karolinaana501@gmail.com
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: i like to study
+- ⚡ Fun fact: i like to study and listen to music 
 -->
 ![](link)
